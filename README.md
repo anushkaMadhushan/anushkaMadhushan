@@ -1,9 +1,9 @@
 ### Hi there, I'm Anushka Madhushan 👋
 
-## I'm Working As a Software Engineer Intern!!
+## I'm Working As a Software Engineer!!
 
 - 🌱 I’m currently learning everything 🤣
-- 🥅 2022 Goals: Learn more Things Do More Projects
+- 🥅 2024 Goals: Learn more Things Do More Projects
 
 ### Social Links:
 
