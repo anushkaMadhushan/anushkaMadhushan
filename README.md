@@ -3,7 +3,7 @@
 ## I'm Working As a Software Engineer!!
 
 - 🌱 I’m currently learning everything 🤣
-- 🥅 2024 Goals: Learn more Things Do More Projects
+- 🥅 2025 Goals: Learn more Things Do More Projects
 
 ### Social Links:
 
